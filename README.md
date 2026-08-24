@@ -6,7 +6,7 @@
 - By The Way my Pronuns Are They/Them
 
 
-- (PS: i use AI)
+- (PS: i use AI most of the time when im borrd)
 <!---
 BaHost01/BaHost01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
